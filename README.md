@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @l00k0ut
+- 👀 I’m interested in Python & C
+- 🌱 (∩｀-´)⊃━✿✿✿✿✿✿
+- 📫 reach me : @lookout23345@outlook.com
